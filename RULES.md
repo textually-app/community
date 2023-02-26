@@ -6,10 +6,10 @@
    available. 💫
 2. Please follow our guidance and think deeply about who you are and
    what you’re looking for. You will need to articulate this in your
-   profile with honesty. You need to truly be yourself. 😇
+   profile with honesty. 😇
 3. Please be kind, courteous and respectful of other’s privacy. Don’t
-   stalk, harass or doxx others. Please don’t be a catfish and break
-   anyone’s heart. 🙏
+   stalk, harass or doxx others. Don’t be a catfish and break anyone’s
+   heart. 🙏
 4. This is a safe space for all people (regardless of neurodivergence,
    whether you’re LGBTQIA2S+, what your skin colour is, ...). Be
    tolerant and help each other out. ❤️
